@@ -1,1 +1,1 @@
-# E--Commerce-Website-for-shoes
+# E--Commerce-Website-for-cosmatics
